@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about your link profile(email, number phone)
 - 📫 How to reach me: here
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ..
 -->
